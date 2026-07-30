@@ -1,2 +1,0 @@
-# thenewboss-Academy
-plateforme entreprenarial
